@@ -1,5 +1,6 @@
-Beste
+## Mail naar directie en ICT 2018-10-07
 
+Beste
 
 Mijn dochter heeft sinds het begin van het schooljaar nog geen werkende Adobe CC versie op haar PC. Tot hiertoe heeft ze zicht uit de  brand moeten slepen met een tijdelijke proefversie van 7 dagen. Deze is nu ook op 28/9 helaas verlopen.
 De update (met USB stick) voor Adobe werd door Jan Sevenant en iemand van ICT woendag 3/10 uitgevoerd. 
